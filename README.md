@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to deal with github
 - 💞️ I’m looking to collaborate on with my teacher
 - 📫 How to reach me its just getting to brazil
+- i love 🍑 and 🍒 these are my favourite fruits
 
 <!---
 andrebagulhado/andrebagulhado is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
